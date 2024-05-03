@@ -10,3 +10,8 @@ bangelotti2@gmail.com
 Eu sou miraculer!!!
 
 gosto de cinema!!!
+
+![](https://media1.tenor.com/m/hOBGbD06Li8AAAAC/oh-please-full-house.gif)
+
+
+![](https://media1.tenor.com/m/EDkF-mDoy3UAAAAC/miraculous-ladybug-catnoir.gif)
